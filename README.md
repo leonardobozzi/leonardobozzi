@@ -1,0 +1,3 @@
+- 👋 Oi, sou @leonardobozzi
+- 👀 Tenho interesse em aprender novas linhaguagem e compartilhar o pouco que ja conheço
+-
